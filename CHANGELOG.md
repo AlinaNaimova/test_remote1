@@ -1,0 +1,1 @@
+## SOME CHARS FOR LOGS
